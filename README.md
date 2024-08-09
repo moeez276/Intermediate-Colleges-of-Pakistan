@@ -1,0 +1,1 @@
+# Intermediate-Colleges-of-Pakistan
